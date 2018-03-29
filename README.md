@@ -1,0 +1,2 @@
+# simpleRin
+congrats ＼(^o^)／
